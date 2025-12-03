@@ -11,13 +11,13 @@ https://drive.google.com/drive/folders/1JVr1s0fuavwmdeccJYbNnBi7TrWlR0dK?usp=dri
 ===========================================================================
 
 
-YAT571 Marketing Team Project Presentation
+UCMAS Marketing Team Project Presentation - YAT571
 
 https://www.canva.com/design/DAG3YY5-FpQ/nFWuN6TlHEqTmnRPsBvtqA/edit
 
 
 ===========================================================================
 
-YAT578 Graphic Team Project Presentation
+UCMAS Graphic Team Project Presentation - YAT578
 
 https://drive.google.com/file/d/1uxSWdbI6CrFLdQ977w2UjejcGPaqONLw/view?usp=drive_link
